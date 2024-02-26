@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Prabesh-k
-- 👀 I’m interested in Crop Science
+- 👀 I’m interested in genomics and plant science
 - 🐣 I'm learning programming 
 - I have great passion for cannabis research and academics 
 
